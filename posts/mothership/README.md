@@ -1,0 +1,1 @@
+These images and ilustrations have been taken from a personal copy of the book "Mothership: Player's survival guide" and the character and ship sheets of Mothership RPG, they belong to Tuesday Knight games.
